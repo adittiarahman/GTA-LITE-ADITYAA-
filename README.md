@@ -34,19 +34,10 @@ Dengan mendownload dan menggunakan GTA San AditYaa, kamu setuju untuk mematuhi a
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 🔥 GTA Lite Adityaa 5.7 XD – Versi Terbaru dengan Fitur Keren! 🔥
+
+
+---
 
 🚗 Benerin Mobil di Mana Saja! Mobil rusak? Sekarang kamu bisa memperbaikinya dengan mudah tanpa repot!
 
