@@ -55,3 +55,40 @@ Dari Admin Adityaa, ada rencana fitur baru yang bakal bikin game makin seru! Taw
 
 🎮 Download Sekarang & Rasakan Sensasi Baru!
 👉 https://shortlink.uk/WUCm
+
+---
+📢 PENGUMUMAN PENTING UNTUK PENGGUNA GTA LITE ADITYAA 📢
+
+Buat kalian yang mengalami GTA Lite keluar sendiri, jangan panik! Ikuti langkah-langkah ini biar game lancar tanpa crash. ✅
+
+🔹 Cara Mengatasinya:
+
+1️⃣ Buka File Manager
+2️⃣ Masuk ke folder Android > data > com.rockstargames > files
+3️⃣ Buka folder tex DB
+4️⃣ Periksa file di dalamnya
+
+Cari file yang ada nama [user name] di dalamnya
+
+Jangan ganti semua file! Hanya file yang ada [user name] saja
+5️⃣ Ganti nama [user name] menjadi pvr
+
+Pastikan semua file yang ada [user name] sudah diubah ke pvr, biar game nggak keluar sendiri
+
+
+🔹 Pastikan juga folder ini ada di dalam tex DB:
+
+📂 gta3
+📂 gta_int
+📂 menu
+📂 mobile
+📂 player
+📂 txd
+
+🔹 Jika masih bermasalah:
+
+🔄 Cek kembali apakah semua file sudah diubah dengan benar
+🎮 Coba masuk ke GTA Lite Mimin untuk memastikan semuanya sudah sesuai
+
+🔥 Dijamin ampuh! Selamat bermain tanpa gangguan! 🔥
+
