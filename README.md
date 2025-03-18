@@ -32,7 +32,7 @@ Dengan mendownload dan menggunakan GTA San AditYaa, kamu setuju untuk mematuhi a
 
 ❗ Melanggar aturan ini bisa berakibat pada pemblokiran akses dan laporan hak cipta! ❗
 
-
+---
 
 🔥 GTA Lite Adityaa 5.7 XD – Versi Terbaru dengan Fitur Keren! 🔥
 
