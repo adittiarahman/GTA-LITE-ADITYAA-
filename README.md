@@ -1,4 +1,4 @@
-# GTA-LITE-ADITYAA 5.0 OG-
+# GTA-LITE-ADITYAA-
 GTA LITE ADITYAA 5.0 OG💯✅
 
 🔥 AditYaa🚀 - Sang Legend Pembawa GTA Lite Gratis! 🔥
@@ -52,4 +52,4 @@ Versi terbaru ini masih dalam proses pengembangan, jadi mungkin ada beberapa bug
 Dari Admin Adityaa, ada rencana fitur baru yang bakal bikin game makin seru! Tawuran antar geng mungkin akan ditambahkan di update mendatang! Jadi, siap-siap buat perang jalanan yang lebih brutal! 🔥 Tunggu aja update-nya!
 
 🎮 Download Sekarang & Rasakan Sensasi Baru!
-👉 https://www.mediafire.com/file/ic7q7f8q0ef66y9/%25F0%259F%2594%25A5Gta_Litee%25F0%259F%2594%25A5_work_adityaa_XD1.5.7z/file
+👉 https://shortlink.uk/WUCm
