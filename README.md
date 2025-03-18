@@ -3,7 +3,7 @@ GTA LITE ADITYAA 5.0 OG💯✅
 
 🔥 AditYaa🚀 - Sang Legend Pembawa GTA Lite Gratis! 🔥
 
-💥 GTA Lite Terbaru! Anti Lag, Anti FC, 100% Work! 💥
+💥 GTA Lite Old! Anti Lag, Anti FC, 100% Work! 💥
 🔹 Ukuran Kecil, Grafik Mantap, Tetap Seru!
 🔹 Bisa Main di HP Kentang, Gas Tanpa Ragu!
 🔹 No Hoax, No Mod Abal-Abal, Murni GTA Lite Asli!
