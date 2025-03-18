@@ -31,3 +31,25 @@ Dengan mendownload dan menggunakan GTA San AditYaa, kamu setuju untuk mematuhi a
 5️⃣ Jika menemukan versi palsu atau modifikasi yang mengandung virus, segera laporkan!
 
 ❗ Melanggar aturan ini bisa berakibat pada pemblokiran akses dan laporan hak cipta! ❗
+
+
+
+
+🔥 GTA Lite Adityaa 5.7 XD – Versi Terbaru dengan Fitur Keren! 🔥
+
+🚗 Benerin Mobil di Mana Saja! Mobil rusak? Sekarang kamu bisa memperbaikinya dengan mudah tanpa repot!
+
+⛽ Isi Bensin di SPBU! Jangan sampai kehabisan bensin di tengah jalan! Kini kamu bisa mengisi bahan bakar di SPBU terdekat.
+
+🏠 Tidur Nyaman di Rumah CJ! Setelah lelah berpetualang, istirahatlah di rumah CJ untuk mengembalikan energi.
+
+💬 Ngobrol dengan NPC! Interaksi lebih hidup! Sekarang kamu bisa berbicara dengan karakter NPC di dalam game.
+
+⚠️ Masih dalam Tahap Perkembangan!
+Versi terbaru ini masih dalam proses pengembangan, jadi mungkin ada beberapa bug atau game keluar sendiri. Tapi tenang aja, bug-nya nggak separah GTA Grand Tank City! 😆 Tunggu update selanjutnya ya!
+
+🔒 Bocoran Update Selanjutnya! (Rahasia Kita Ya! 🤫)
+Dari Admin Adityaa, ada rencana fitur baru yang bakal bikin game makin seru! Tawuran antar geng mungkin akan ditambahkan di update mendatang! Jadi, siap-siap buat perang jalanan yang lebih brutal! 🔥 Tunggu aja update-nya!
+
+🎮 Download Sekarang & Rasakan Sensasi Baru!
+👉 https://www.mediafire.com/file/ic7q7f8q0ef66y9/%25F0%259F%2594%25A5Gta_Litee%25F0%259F%2594%25A5_work_adityaa_XD1.5.7z/file
