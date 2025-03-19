@@ -59,7 +59,7 @@ Dari Admin Adityaa, ada rencana fitur baru yang bakal bikin game makin seru! Taw
 ---
 📢 PENGUMUMAN PENTING UNTUK PENGGUNA GTA LITE ADITYAA 📢
 
-Buat kalian yang mengalami GTA Lite keluar sendiri, jangan panik! Ikuti langkah-langkah ini biar game lancar tanpa crash. ✅
+Buat kalian yang mengalami Keluar sendiri saat memulai game kalian boleh mengikuti totorial ini ✅  Ikuti langkah-langkah ini biar game lancar tanpa crash. ✅
 
 🔹 Cara Mengatasinya:
 
